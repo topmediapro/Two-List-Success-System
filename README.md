@@ -1,4 +1,4 @@
-# Two-List-Success-System
+# Two-List Success System Review and OTO Upgrade
 ### From Wayne Crowe & Jimmy Griffith: Make Up To $250 Per Lead Promoting The Two-List Success System Launch
 ### A Proven List-Building System & Deep Funnel Designed to Deliver Results for You and Your Audience
 
